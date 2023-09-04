@@ -1,5 +1,1 @@
-### Hi there 👋
-FSU is overrated
-LSU just has no line
-I'm sick of this ESPN bias smh
-thats about it
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Here+are+some+straight+FACTS;FSU+is+overrated;ESPN+bias+is+annoying;CLemson+beats+your+favorite+team+by+40)](https://git.io/typing-svg)
